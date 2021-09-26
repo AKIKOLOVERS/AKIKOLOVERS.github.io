@@ -3,7 +3,7 @@
 
 [創角劇情](0.md) 
 
-[序章](/princess/0.5html)
+[序章](/princess/0.5.html)
 
 [第1話   【何為公主?】](/princess/1.html) 
 
