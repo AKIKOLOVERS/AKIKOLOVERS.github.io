@@ -1,7 +1,7 @@
 ###  歡迎來到黑歷史創作區
 
 #### 完結作品
-[合法蘿莉仙人似乎要來噩盡島觀光的樣子](/001_CinderyWitch/000_CinderyWitch.md)
+[合法蘿莉仙人似乎要來噩盡島觀光的樣子](cocolo.md)
 
 [桐子似乎要跟闇神成為友人](/003_YourHeroAcademia/000_YourHeroAcademia.md)
 
