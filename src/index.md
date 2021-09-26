@@ -5,7 +5,7 @@
 
 [桐子似乎要跟闇神成為友人]()
 
-[霸瞳皇帝似乎要成為女主角的樣子](/princess/index.md)
+[霸瞳皇帝似乎要成為女主角的樣子](/princess/princess.md)
 
 
 
