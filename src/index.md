@@ -3,7 +3,7 @@
 #### 完結作品
 [合法蘿莉仙人似乎要來噩盡島觀光的樣子](cocolo.md)
 
-[桐子似乎要跟闇神成為友人](/003_YourHeroAcademia/000_YourHeroAcademia.md)
+[桐子似乎要跟闇神成為友人](5.html)
 
 [霸瞳皇帝似乎要成為女主角的樣子](/004_Qimiaoqianjin/000_Qimiaoqianjin.md)
 
