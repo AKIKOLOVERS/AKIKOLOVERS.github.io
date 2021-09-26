@@ -19,7 +19,7 @@
 
 [第8話   【理應迎來的幸福結局】](/princess/8.html) 
 
-[第8.5話   【馬提爾德岩峰 北部】]/princess(/8-5.html) 
+[第8.5話   【馬提爾德岩峰 北部】](/princess/8-5.html) 
 
 [第9話   【他與她的終末決戰】](/princess/9.html) 
 
