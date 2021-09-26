@@ -2,7 +2,7 @@
 
 歡迎來到AKIKOLOVERS的黑歷史園地。
 
-[點這裡閱讀看我的作品](/src/index.md)
+[點這裡閱讀我的作品](/src/index.md)
 
 [點這裡來DC群一起安價](/src/group.md)
 
