@@ -1,9 +1,11 @@
 ![Header](ti-princess.png)
 
 
-[創角劇情、序章](0.md) 
+[創角劇情](0.md) 
 
-[第1話-何為公主?](/princess/1.html) 
+[序章](/princess/0.5html)
+
+[第1話   【何為公主?】](/princess/1.html) 
 
 [第2話   【藥草採集】](/princess/2.html) 
 
