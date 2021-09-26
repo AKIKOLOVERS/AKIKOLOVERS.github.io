@@ -10,4 +10,4 @@
 
 
 #### 進行中作品
-[魔法少女不會死](/002_deqiluousihuzhiyuanmofashaonv/000_deqiluousihuzhiyuanmofashaonv.md)
+[魔法少女不會死(未上傳)]
