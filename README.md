@@ -4,7 +4,7 @@
 
 [點這裡閱讀我的作品](/src/index.md)
 
-[點這裡來DC群一起安價](/src/group.md)
+[點這裡來DC群一起安價(未開放)](/src/group.md)
 
 ### 你是誰?
 ```
