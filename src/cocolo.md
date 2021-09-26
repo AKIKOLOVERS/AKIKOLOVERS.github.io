@@ -1,5 +1,5 @@
 
-創角劇情：http://imgur.com/gallery/IES11CE
+<a href="http://imgur.com/gallery/IES11CE">創角劇情</a>
 
 第一話： http://imgur.com/gallery/seHzaCB: 
 
