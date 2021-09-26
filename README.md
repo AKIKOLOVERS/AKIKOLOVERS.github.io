@@ -1,6 +1,5 @@
-# AKIKOLOVERS.github.io
+# 歡迎來到AKIKOLOVERS的黑歷史園地
 
-歡迎來到AKIKOLOVERS的黑歷史園地。
 
 [點這裡閱讀我的作品](/src/index.md)
 
