@@ -19,3 +19,4 @@
 
 [第一章-序 ](/magicgirl/6.0.html) 
 
+[第6話](/magicgirl/60.html) 
