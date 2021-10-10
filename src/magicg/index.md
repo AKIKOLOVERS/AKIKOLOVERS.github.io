@@ -1,5 +1,6 @@
 ![Header](TI-MAGIC.png)
 
+# 本傳
 
 [序](/magicgirl/0.html)
 
@@ -20,3 +21,10 @@
 [第一章-序 ](/magicgirl/6.0.html) 
 
 [第6話](/magicgirl/6.1.html) 
+
+
+# 外傳
+
+見習魔女南宮那月
+
+[第1話](/magicgirl/bf1.html) 
