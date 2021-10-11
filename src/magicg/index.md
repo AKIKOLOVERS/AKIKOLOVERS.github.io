@@ -22,6 +22,8 @@
 
 [第6話](/magicgirl/6.1.html) 
 
+[第7話](/magicgirl/7.html) 
+
 
 # 外傳
 
