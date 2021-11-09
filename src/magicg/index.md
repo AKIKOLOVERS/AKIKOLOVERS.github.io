@@ -29,6 +29,10 @@
 
 # 外傳
 
+番外短篇
+
+[第7話的小小後續](/magicgirl/.html) 
+
 見習魔女南宮那月
 
 [第1話](/magicgirl/bf1.html) 
