@@ -33,6 +33,8 @@
 
 [第7話的小小後續](/magicgirl/7.1.html) 
 
+[島風的日常](/magicgirl/short1.html) 
+
 見習魔女南宮那月
 
 [第1話](/magicgirl/bf1.html) 
