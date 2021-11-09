@@ -35,6 +35,8 @@
 
 [島風的日常](/magicgirl/short1.html) 
 
+[魔女的一日](/magicgirl/short2.html) 
+
 見習魔女南宮那月
 
 [第1話](/magicgirl/bf1.html) 
