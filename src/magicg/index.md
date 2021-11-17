@@ -37,6 +37,8 @@
 
 [魔女的一日](/magicgirl/short2.html) 
 
+[小圓與友人的日常](/magicgirl/short3.html) 
+
 見習魔女南宮那月
 
 [第1話](/magicgirl/bf1.html) 
