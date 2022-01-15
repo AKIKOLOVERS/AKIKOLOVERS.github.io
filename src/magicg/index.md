@@ -26,6 +26,8 @@
 
 [第8話](/magicgirl/8.html) 
 
+[第9話](/magicgirl/9.html) 
+
 
 # 外傳
 
