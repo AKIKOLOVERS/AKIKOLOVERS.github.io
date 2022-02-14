@@ -28,6 +28,7 @@
 
 [第9話](/magicgirl/9.html) 
 
+[第10話](/magicgirl/10.html) 
 
 # 外傳
 
