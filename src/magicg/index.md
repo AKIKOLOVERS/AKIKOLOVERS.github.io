@@ -42,6 +42,8 @@
 
 [小圓與友人的日常](/magicgirl/short3.html) 
 
+[安價短篇：不可以色色，魔法師公會員工健檢騷動](/magicgirl/short.html) 
+
 見習魔女南宮那月
 
 [第1話](/magicgirl/bf1.html) 
