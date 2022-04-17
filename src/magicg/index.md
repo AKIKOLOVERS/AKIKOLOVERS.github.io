@@ -44,6 +44,8 @@
 
 [安價短篇：不可以色色，魔法師公會員工健檢騷動](/magicgirl/short4.html) 
 
+[安價短篇：魔法少女支部的宣傳採訪](/magicgirl/short5.html) 
+
 見習魔女南宮那月
 
 [第1話](/magicgirl/bf1.html) 
