@@ -49,3 +49,5 @@
 見習魔女南宮那月
 
 [第1話](/magicgirl/bf1.html) 
+
+[第2話](/magicgirl/bf2.html) 
