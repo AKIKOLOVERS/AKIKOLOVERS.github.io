@@ -51,3 +51,5 @@
 [第1話](/magicgirl/bf1.html) 
 
 [第2話](/magicgirl/bf2.html) 
+
+[第3話](/magicgirl/bf3.html) 
