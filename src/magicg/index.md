@@ -55,3 +55,5 @@
 [第3話](/magicgirl/bf3.html) 
 
 [第4話](/magicgirl/bf4.html) 
+
+[最終話](/magicgirl/bf5.html) 
