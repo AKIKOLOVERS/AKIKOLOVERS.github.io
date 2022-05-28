@@ -46,7 +46,7 @@
 
 [安價短篇：魔法少女支部的宣傳採訪](/magicgirl/short5.html) 
 
-見習魔女南宮那月
+外傳一：見習魔女南宮那月
 
 [第1話](/magicgirl/bf1.html) 
 
@@ -58,4 +58,4 @@
 
 [最終話](/magicgirl/bf5.html) 
 
-[外傳一：完結人物介紹](/magicgirl/BFINTRO.html) 
+[完結人物介紹](/magicgirl/BFINTRO.html) 
