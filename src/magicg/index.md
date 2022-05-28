@@ -57,3 +57,5 @@
 [第4話](/magicgirl/bf4.html) 
 
 [最終話](/magicgirl/bf5.html) 
+
+[外傳一：完結人物介紹](/magicgirl/BFINTRO.html) 
