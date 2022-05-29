@@ -34,6 +34,8 @@
 
 [第11話](/magicgirl/11.html) 
 
+[第12話](/magicgirl/12.html)
+
 # 外傳
 
 番外短篇
