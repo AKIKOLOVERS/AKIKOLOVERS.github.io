@@ -30,6 +30,10 @@
 
 [第10話](/magicgirl/10.html) 
 
+[第10.5話【愛莉絲篇人物介紹】](/magicgirl/aliceintro.html) 
+
+[第11話](/magicgirl/11.html) 
+
 # 外傳
 
 番外短篇
