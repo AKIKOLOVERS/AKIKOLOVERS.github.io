@@ -52,6 +52,8 @@
 
 [安價短篇：魔法少女支部的宣傳採訪](/magicgirl/short5.html) 
 
+[安科短篇：為妳製作的滋味](/magicgirl/short6.html) 
+
 外傳一：見習魔女南宮那月
 
 [第1話](/magicgirl/bf1.html) 
