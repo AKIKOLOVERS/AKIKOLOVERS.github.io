@@ -73,3 +73,7 @@
 [最終話](/magicgirl/bf5.html) 
 
 [完結人物介紹](/magicgirl/BFINTRO.html) 
+
+外傳二：實習魔法師愛莉絲
+
+[序](/magicgirl/OUT2-0.html) 
