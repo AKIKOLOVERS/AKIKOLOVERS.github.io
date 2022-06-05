@@ -40,6 +40,8 @@
 
 [第14話](/magicgirl/14.html)
 
+[第15話](/magicgirl/15.html)
+
 # 外傳
 
 番外短篇
