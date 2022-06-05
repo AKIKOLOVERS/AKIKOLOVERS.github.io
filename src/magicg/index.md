@@ -38,6 +38,8 @@
 
 [第13話](/magicgirl/13.html)
 
+[第14話](/magicgirl/14.html)
+
 # 外傳
 
 番外短篇
