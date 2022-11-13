@@ -60,7 +60,7 @@
 
 [安科短篇：為妳製作的滋味](/magicgirl/short6.html) 
 
-[安科短篇：魔法少女支部的料理競賽](/magicgirl/short7.html)
+[安價短篇：魔法少女支部的料理競賽](/magicgirl/short7.html)
 
 外傳一：見習魔女南宮那月
 
