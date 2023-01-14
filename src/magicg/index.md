@@ -42,6 +42,9 @@
 
 [第15話](/magicgirl/15.html)
 
+[第16話](/magicgirl/16.html)
+
+
 # 外傳
 
 番外短篇
