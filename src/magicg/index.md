@@ -44,6 +44,7 @@
 
 [第16話](/magicgirl/16.html)
 
+[第17-1話](/magicgirl/17-1.html)
 
 # 外傳
 
