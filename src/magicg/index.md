@@ -46,6 +46,9 @@
 
 [第17-1話](/magicgirl/17-1.html)
 
+[第17-2話](/magicgirl/17-2.html)
+
+
 # 外傳
 
 番外短篇
