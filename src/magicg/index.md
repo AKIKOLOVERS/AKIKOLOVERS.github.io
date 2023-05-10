@@ -48,6 +48,7 @@
 
 [第17-2話](/magicgirl/17-2.html)
 
+[第17-3話](/magicgirl/17-3.html)
 
 # 外傳
 
