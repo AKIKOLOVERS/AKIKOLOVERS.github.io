@@ -50,6 +50,8 @@
 
 [第17-3話](/magicgirl/17-3.html)
 
+[第17話_完](/magicgirl/17-end.html)
+
 # 外傳
 
 番外短篇
