@@ -54,6 +54,9 @@
 
 [第18話](/magicgirl/18.html)
 
+[第19-1話](/magicgirl/19-1.html)
+
+
 # 外傳
 
 番外短篇
