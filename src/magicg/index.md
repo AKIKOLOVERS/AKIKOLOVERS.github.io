@@ -58,6 +58,7 @@
 
 [第19-2話](/magicgirl/19-2.html)
 
+[第19-3話](/magicgirl/19-3.html)
 
 # 外傳
 
