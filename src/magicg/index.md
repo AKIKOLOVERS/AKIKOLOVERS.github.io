@@ -60,6 +60,8 @@
 
 [第19-3話](/magicgirl/19-3.html)
 
+[第19話_完](/magicgirl/19-end.html)
+
 # 外傳
 
 番外短篇
