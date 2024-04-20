@@ -62,6 +62,8 @@
 
 [第19話_完](/magicgirl/19-end.html)
 
+[第20話_序](/magicgirl/20-0.html)
+
 # 外傳
 
 番外短篇
